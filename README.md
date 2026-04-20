@@ -186,4 +186,4 @@ The solution is ready for full IP transfer and acquisition by a strategic partne
 development, and commercialization at global scale.
 
 Jesus i trust in You 
-Peter
+beachdrinksunglassesparty@gmail.com
